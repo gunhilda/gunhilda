@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @gunhilda
-- 👀 I’m interested in coding, making love and arts.
+- 👀 I’m interested in coding, cooking and arts.
 - 🌱 I’m currently learning everything interesting.
 - 💞️ I’m looking to collaborate on what interesting are You working on.
 - 📫 How to reach me ...
